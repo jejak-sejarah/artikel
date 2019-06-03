@@ -1,4 +1,4 @@
-#Tafsir Majapahit Kesultanan Islam
+# Tafsir Majapahit Kesultanan Islam
 
 Akan tetapi, mengaji atau membaca sejarah apapun seperti sejarah Majapahit yang sangat besar ini, kita tidak akan mendapat pemandangan yang lebih lengkap jika hanya menggunakan satu sudut pandang atau jika hanya berdiri di satu sudut. Kita harus memandang Majapahit dari banyak sudut. bagaimana dengan prasasti, naskah, cerita cerita rakyat, artefak artefik, dan seterusnya.
 
