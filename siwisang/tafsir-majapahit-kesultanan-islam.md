@@ -59,6 +59,8 @@ SIWI SANG
 
 5/4/2016
 
+https://www.kompasiana.com/siwisang/57038cdfe122bd0606157402/tafsir-majapahit-kesultanan-islam
+
 ## Komentar
 
 sepertinya Mbak Siwisang blm memahami alasan Ki Herman Sinung Janutama
