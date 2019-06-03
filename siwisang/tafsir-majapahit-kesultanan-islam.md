@@ -58,3 +58,15 @@ Jangan sampai terutama para penulis dan peneliti sejarah Islam Nusantara berupay
 SIWI SANG
 
 5/4/2016
+
+## Komentar
+
+sepertinya Mbak Siwisang blm memahami alasan Ki Herman Sinung Janutama
+sy sebagai penikmat sejarah berusaha ikut menjelaskan di sini
+
+1. Ki Herman langsung masuk ke jantung, dengan menafsir beda isi Negarakertagama. Yg dilakukan dengan mengunakan literatur istilah yg dipakai juga di jaman kasultanan. Salah satunya Serat "Rerepen Sunan Prawoto". Akhirnya pemaknaan  "Kasiwaan" dan "Kasogatan" beda dengan yg dimaksud selama ini.
+
+2. Terkait uang logam berhuruf arab berkalimat tauhid, ini tdk semata karena tulisannya, karena tulisan itu tdk mempunyai ciri Majapahit, tetapi ciri Islam. 
+Ciri Mahapahit pada uang logam yg dimaksud adalah lambang Surya Majapahid di tengah uang logam.  Jadi gabungan antara ciri Majapahit dan Ciri Islam (Itu kalau ciri Majapahid diterima)
+
+3. Terkait Gaj Ahmada, sebenarnya Ki Herman Sinung Janutama malah nggak pernah menggunakan istilah Gaj Ahmada, saya nggak tahu itu sumbernya dari mana. Yg dimaksud Ki Herman adalah operasi GARBA dalam bahasa jawa/kawi . Dalam hal ini GAJAHMADA bisa dipisah jadi GAJAH AHMADA (bukan Gaj Ahmada). Ini seperti prapteng dari "prapta ing", atau nusantara dari nusa antara. Tentu saja operasi garba ini tepat apa tidak bisa dikaji ulang berdasar teori bahasa.
