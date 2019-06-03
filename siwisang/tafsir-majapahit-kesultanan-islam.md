@@ -1,0 +1,5 @@
+=== Tafsir Majapahit Kesultanan Islam ===
+
+Akan tetapi, mengaji atau membaca sejarah apapun seperti sejarah Majapahit yang sangat besar ini, kita tidak akan mendapat pemandangan yang lebih lengkap jika hanya menggunakan satu sudut pandang atau jika hanya berdiri di satu sudut. Kita harus memandang Majapahit dari banyak sudut. bagaimana dengan prasasti, naskah, cerita cerita rakyat, artefak artefik, dan seterusnya.
+
+Kalo soal keping uang berhuruf arab berkalimat tauhid yang disimpulkan Ki Herman Sinung Janutama sebagai mata uang resmi Kesultanan majapahit, itu juga perlu dibaca ulang. Munculnya mata uang logam bernuansa Islam di daerah pesisir utara Jawa, bukan berarti dikeluarkan oleh suatu kesultanan Islam di Jawa yaitu Kesultana Majapahit. Jaman Majapahit ada banyak bangsa, komunitas sosial budaya dan agama. Munculnya koin bernuansa Islam lebih untuk membuktikan bahwa pada jaman itu, Majapahit, sudah berkembang komunitas Islam di Jawa. Ini juga nanti dikuatkan dengan berita dari negeri Tiongkok bahwa pada jaman Panjalu sudah berkembang komunitas Muslim di Jawa.
